@@ -19,3 +19,15 @@ I am passionate about **Code👩‍💻** and like to create with max accuracy a
 
 I am currently looking🔎 for an Entry level development job to launch my career in the industry.
 
+Tech Stack: I am open to learning anything and everything.
+
+Skills:
+- Leadership
+- People Management
+- Mentoring
+- Time Management
+- Analytical
+- Decision Making
+
+LinkedIn: https://www.linkedin.com/in/mohpreetk/
+
